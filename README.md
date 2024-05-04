@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @littlegagaduck
 - 🌱 I’m currently learning University courses
-- 📫 My email : littlegagaduck@gmail.com
+- 📫 My email : cyz020403@gmail.com
